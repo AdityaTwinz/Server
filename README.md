@@ -1,1 +1,2 @@
-![template_s](https://github.com/AdityaTwinz/GoBots/blob/main/image/IMG_20230725_233137.jpg)
+![template_s](https://i.ibb.co/BZ3k3gH/20230710-172311-0000.png)
+##### Gatau Gabut bngt😹
